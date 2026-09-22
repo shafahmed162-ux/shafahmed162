@@ -7,6 +7,6 @@ B.Sc. Science student at Lassonde School of Engineering, York University
    testing and data analysis skills
 💼 experience: Software Engineer Intern @ Reality AI Labs · 
    Technical Mentor @ ZiLList
-📫 Reach me: your@email.com · linkedin.com/in/yourhandle
+📫 Reach me: shafahmed162@gmail.com
 
 *This profile will grow as I build out my portfolio — check back soon.*
